@@ -1,5 +1,4 @@
-# ![](https://64.media.tumblr.com/758b03ceb13774d41f3916d078851999/33dfd7eda65ea141-b7/s75x75_c1/dd47b90df1b554772f02072d6f13d6cae8fd17ad.gifv) ![](https://blinkies.cafe/b/blinkiesCafe-Vs.gif)
-
+# ![](https://64.media.tumblr.com/758b03ceb13774d41f3916d078851999/33dfd7eda65ea141-b7/s75x75_c1/dd47b90df1b554772f02072d6f13d6cae8fd17ad.gifv)
 ![.](https://64.media.tumblr.com/98eb39b603c95c8c79c7a38adfac3a52/1a4aada150e43b0f-b5/s250x400/de964aae4d90575981265daa8e74f54614733ce6.gifv)
 
 hi im leo! my top interests rn r milgram, umamusume, nso and unholyc. ![](https://64.media.tumblr.com/f37019421e109e519743fe0ebdde4385/a251213c95b11efb-aa/s75x75_c1/51f24e94acb3db09e865f4bb614aef895d000b33.gifv) 
